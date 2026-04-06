@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AALG930410MGTLRL07
+AALG930410MGTLRL07
